@@ -1,0 +1,2 @@
+# GLOBALFLASHCO-provide-you-with-updated-Bitcoin-flash-software
+GLOBALFLASHCO provide you with updated Bitcoin flash software! WARNING : This software is only used for entertainment and not for fraud. Illegal use of this software is at your own risk. This program is only for joking with friends or showing them how to send fake bitcoins. Although you can trade with these bitcoins. https://globalflashco.com/
